@@ -1,6 +1,6 @@
-# Wishlist
+## Wishlist
 
-## Books
+### Books
 
 I’m always interested in new books on pretty much any topic, here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list.
 
@@ -23,7 +23,7 @@ Books I’d especially like:
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Art and Soul of Dune](https://www.amazon.co.uk/dp/178909609X/)
 
-## Lego
+### Lego
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131)
@@ -39,7 +39,7 @@ Books I’d especially like:
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
     - [Up-Scaled LEGO Minifigure](https://www.lego.com/en-gb/product/up-scaled-lego-minifigure-40649)
 
-## Gift Cards
+### Gift Cards
 
 - [IKEA](https://giftcard.ikea.co.uk/)
 - [Next](https://www4.next.co.uk/gift-cards)
@@ -47,7 +47,7 @@ Books I’d especially like:
 - [Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)
 - [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
 
-## Other
+### Other
 
 - [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
