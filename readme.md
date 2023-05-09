@@ -1,3 +1,1 @@
-# Notes
-
 * [Wishlist](/wishlist.md)
