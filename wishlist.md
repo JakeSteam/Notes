@@ -53,3 +53,17 @@ Books I’d especially like:
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
+
+### For Cassie
+
+- [Cat Tunnel Donut](https://www.amazon.co.uk/dp/B08CDSPYNW/)
+- [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
+- [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/) (or others)
+- [Encore Tuna Fillet Pouches](https://www.amazon.co.uk/dp/B005QMUL9W/)
+- [Circular Cat Scratching Post](https://www.amazon.co.uk/dp/B083LZBHM9)
+- [Scratching Post Laptop](https://www.amazon.co.uk/dp/B00ZFSFOO4)
+- [Collapsible Play Mat](https://www.amazon.co.uk/dp/B07F2G7ZHT)
+- [Whack-a-Mole Wooden Toy](https://www.amazon.co.uk/dp/B07RKWFRVF/)
+- [GoCat Da Bird](https://www.amazon.co.uk/dp/B000F9JJJE/)
+- [Slow Feeder](https://www.amazon.co.uk/dp/B00EB4IV2A/)
+- [Digger Feeder](https://www.amazon.co.uk/dp/B015P13QMM/)
