@@ -2,7 +2,7 @@
 
 ### Books
 
-I’m always interested in new books on pretty much any topic, here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list.
+I'm always very grateful for new recommendations in any genre, fiction or non-fiction! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
 
 Books I’d especially like:
 
