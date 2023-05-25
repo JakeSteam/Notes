@@ -51,6 +51,7 @@ Books I’d especially like:
 ### Other
 
 - [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
+- [Additional Laptop charger](https://www.coywood.co.uk/lenovo-thinkbook-16p-g2-ach-charger-81327-p.asp)
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
