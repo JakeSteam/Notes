@@ -52,6 +52,7 @@ Books I’d especially like:
 
 - [Ammonite Porcelain Lamp](https://www.dunelm.com/product/porcelain-ammonite-lamp-1000214055?defaultSkuId=30803328)
 - [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
+- [Spray Hose Head](https://www.amazon.co.uk/gp/product/B0011NO7JK/)
 
 ### Other
 
