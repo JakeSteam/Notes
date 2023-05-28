@@ -54,15 +54,21 @@ Books I’d especially like:
 - [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
 - [Spray Hose Head](https://www.amazon.co.uk/gp/product/B0011NO7JK/)
 
+### Food & Drink
+
+- [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
+- Any Coffee Beans (whole, roasted)
+- Any Protein Bars
+- Any Peanut Butters
+
 ### Other
 
 - [Additional Laptop charger](https://www.coywood.co.uk/lenovo-thinkbook-16p-g2-ach-charger-81327-p.asp)
-- [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/collection/full-collection/multi-colour-roundel-mug)
 
-### For Cassie 😻
+## For Cassie 😻
 
 - [Cat Tunnel Donut](https://www.amazon.co.uk/dp/B08CDSPYNW/)
 - [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
