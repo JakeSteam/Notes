@@ -42,12 +42,13 @@ Books I’d especially like:
 
 ### Gift Cards
 
+- [Dunelm](https://www.dunelm.com/info/gift-cards)
+- [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
 - [IKEA](https://giftcard.ikea.co.uk/)
 - [Next](https://www4.next.co.uk/gift-cards)
-- [Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)
+- [Patch Plants](https://www.patchplants.com/gb/en/vouchers/patch-9/)
 - [Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)
-- [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
-- [Dunelm](https://www.dunelm.com/info/gift-cards)
+- [Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)
 
 ### Home
 
