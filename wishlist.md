@@ -52,6 +52,7 @@ Books I’d especially like:
 
 ### Home
 
+- [Wifi Mesh](https://www.amazon.co.uk/TP-Link-Dual-Band-Coverage-Parental-Controls/dp/B0B644N72G/)
 - [Ammonite Porcelain Lamp](https://www.dunelm.com/product/porcelain-ammonite-lamp-1000214055?defaultSkuId=30803328)
 - [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
 - [Spray Hose Head](https://www.amazon.co.uk/gp/product/B0011NO7JK/)
