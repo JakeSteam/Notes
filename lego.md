@@ -4,6 +4,7 @@
 
 - [Ford GT](https://www.lego.com/en-gb/product/2022-ford-gt-42154)
 - [Ford F-150 Raptor](https://www.lego.com/en-gb/product/ford-f-150-raptor-42126)
+- [Ford Mustang](https://www.lego.com/en-gb/product/ford-mustang-10265)
 - [McLaren Formula 1](https://www.lego.com/en-gb/product/mclaren-formula-1-race-car-42141)
 - [Land Rover Defender](https://www.lego.com/en-gb/product/land-rover-defender-42110)
 - [Audi Sport Quattro S1](https://www.lego.com/en-gb/product/1985-audi-sport-quattro-s1-76897)
