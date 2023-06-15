@@ -31,7 +31,6 @@ Books I’d especially like:
     - [Ferrari Daytona SP3](https://www.lego.com/en-gb/product/ferrari-daytona-sp3-42143)
     - [Lamborghini Sián FKP 37](https://www.lego.com/en-gb/product/lamborghini-sian-fkp-37-42115)
 - £100 - £300
-    - [Ford Mustang](https://www.lego.com/en-gb/product/ford-mustang-10265)
     - [Porsche 911 RSR](https://www.lego.com/en-gb/product/porsche-911-rsr-42096)
     - [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130)
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
