@@ -13,6 +13,7 @@
 
 - [NASA Space Shuttle Discovery](https://www.lego.com/en-gb/product/nasa-space-shuttle-discovery-10283)
 - [NASA Apollo Saturn V](https://www.lego.com/en-gb/product/lego-nasa-apollo-saturn-v-92176)
+- [NASA Mars Rover Perseverance](https://www.lego.com/en-gb/product/nasa-mars-rover-perseverance-42158)
 
 ### Other
 
