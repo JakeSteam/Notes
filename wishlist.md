@@ -35,7 +35,6 @@ Books I’d especially like:
     - [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130)
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
-    - [Mars Rover Perseverance](https://www.lego.com/en-gb/product/nasa-mars-rover-perseverance-42158)
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
     - [Up-Scaled LEGO Minifigure](https://www.lego.com/en-gb/product/up-scaled-lego-minifigure-40649)
 
