@@ -6,13 +6,11 @@ I'm always very grateful for new recommendations in any genre, fiction or non-fi
 
 Books I’d especially like:
 
-- [Runescape: The First 20 Years - An Illustrated History](https://www.amazon.co.uk/dp/1506721257/)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
-- [Firmament](https://www.amazon.co.uk/dp/152936227X/)
-- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please!)
+- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
 - [Trinity: a Graphic History of the First Atomic Bomb](https://www.amazon.co.uk/dp/0809093553)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
 - [Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
