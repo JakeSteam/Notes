@@ -64,7 +64,7 @@ Books I’d especially like:
 
 ### Other
 
-- [Additional Laptop charger](https://www.coywood.co.uk/lenovo-thinkbook-16p-g2-ach-charger-81327-p.asp)
+- [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/collection/full-collection/multi-colour-roundel-mug)
