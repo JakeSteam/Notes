@@ -2,23 +2,10 @@
 
 ### Vehicles
 
-- [Audi Sport Quattro S1](https://www.lego.com/en-gb/product/1985-audi-sport-quattro-s1-76897)
-- [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130)
-- [Ferrari Daytona SP3](https://www.lego.com/en-gb/product/ferrari-daytona-sp3-42143)
-- [Ford GT](https://www.lego.com/en-gb/product/2022-ford-gt-42154)
-- [Ford F-150 Raptor](https://www.lego.com/en-gb/product/ford-f-150-raptor-42126)
-- [Ford Mustang](https://www.lego.com/en-gb/product/ford-mustang-10265)
-- [Land Rover Defender](https://www.lego.com/en-gb/product/land-rover-defender-42110)
-- [McLaren Formula 1](https://www.lego.com/en-gb/product/mclaren-formula-1-race-car-42141)
-
-### Space
-
-- [NASA Space Shuttle Discovery](https://www.lego.com/en-gb/product/nasa-space-shuttle-discovery-10283)
-- [NASA Apollo Saturn V](https://www.lego.com/en-gb/product/lego-nasa-apollo-saturn-v-92176)
-- [NASA Mars Rover Perseverance](https://www.lego.com/en-gb/product/nasa-mars-rover-perseverance-42158)
-
-### Other
-
-- [Typewriter](https://www.lego.com/en-gb/product/typewriter-21327)
-- [London](https://www.lego.com/en-gb/product/london-21034)
-- [Dinosaur Fossils](https://www.lego.com/en-gb/product/dinosaur-fossils-21320)
+| Category | Set | Set | Set |
+| --- | --- | --- | --- |
+| Vehicles (Racing) | [Audi Sport Quattro S1](https://www.lego.com/en-gb/product/1985-audi-sport-quattro-s1-76897)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/d6c41f86-16ce-4d08-af10-1cc4991595ac) | [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/2f3b2bd7-d999-4c00-b539-f512dff77e93) | [McLaren Formula 1](https://www.lego.com/en-gb/product/mclaren-formula-1-race-car-42141)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/e92e44f2-886c-4841-b67c-e3dc01e91400) |
+| Vehicles (Ford) | [Ford GT](https://www.lego.com/en-gb/product/2022-ford-gt-42154)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/1d03cbd3-df24-4fa5-b909-caa5caacbeb3) | [Ford F-150 Raptor](https://www.lego.com/en-gb/product/ford-f-150-raptor-42126)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/b15d0e76-f064-413c-9ab4-07b603179c60) | [Ford Mustang](https://www.lego.com/en-gb/product/ford-mustang-10265)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/a9b51c91-83ab-44da-9f57-d54c90091dea) |
+| Vehicles (Other) | [Land Rover Defender](https://www.lego.com/en-gb/product/land-rover-defender-42110)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/2b0bcfe3-e6a6-4a85-9087-b873e24cd004) | [Ferrari Daytona SP3](https://www.lego.com/en-gb/product/ferrari-daytona-sp3-42143)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/b024a616-c285-44a9-9e96-77977407dbe4) | |
+| Space | [NASA Space Shuttle Discovery](https://www.lego.com/en-gb/product/nasa-space-shuttle-discovery-10283)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/239980a5-ca64-48b8-ac0a-724769888cd1) | [NASA Apollo Saturn V](https://www.lego.com/en-gb/product/lego-nasa-apollo-saturn-v-92176)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/b4a1c94e-7c7e-4adb-963b-a10404396805) | [NASA Mars Rover Perseverance](https://www.lego.com/en-gb/product/nasa-mars-rover-perseverance-42158)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/8f0807ce-81d3-483a-834e-30b828b1954a) |
+| Other | [Typewriter](https://www.lego.com/en-gb/product/typewriter-21327)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/57fe8ab1-72d5-4373-9e6e-f6b1bd8af390) | [London](https://www.lego.com/en-gb/product/london-21034)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/5b58123b-3135-4e60-8780-1b9c669e32d6) | [Dinosaur Fossils](https://www.lego.com/en-gb/product/dinosaur-fossils-21320)<br>![image](https://github.com/JakeSteam/Notes/assets/12380876/7ebb4f5d-95ee-439c-a106-9eaeef558645) |
