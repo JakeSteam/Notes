@@ -1,7 +1,5 @@
 ## Current Lego
 
-### Vehicles
-
 | Category | Set | Set | Set |
 | :---: | :---: | :---: | :---: |
 | Vehicles (Racing) | ![Audi Sport Quattro S1](lego/audisport.png) [Audi Sport Quattro S1](https://www.lego.com/en-gb/product/1985-audi-sport-quattro-s1-76897) | ![image](lego/bmwbike.png) [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130) | ![McLaren Formula 1](lego/f1.png) [McLaren Formula 1](https://www.lego.com/en-gb/product/mclaren-formula-1-race-car-42141) |
