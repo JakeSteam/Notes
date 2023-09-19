@@ -1,14 +1,18 @@
-As Walt Whitman [said](https://poets.org/poem/song-myself-51):
+As [Walt Whitman said](https://poets.org/poem/song-myself-51):
 
 > I contain multitudes.
 
+and as [Dave said](https://genius.com/Dave-picture-me-lyrics):
+
+> Money ain't a measure of success.
+
 We are all on multiple overlapping and contradicting "paths". Focusing on one might mean helping another, or it may mean sabotaging it. By trying to define how I identify myself, and the stages involved in these definitions, perhaps the awareness will help avoid self-sabotage. Or perhaps not. 
 
-## Paths
+## Identities
 
 ### Software Engineer (4/5)
 
-- GDE
+- Repository with 1000 stars
 - ~~Lead a team~~
 - ~~Become a subject matter expert~~
 - ~~Deep understanding of an ecosystem~~
@@ -21,6 +25,14 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - Publish fiction
 - ~~Release at least 1 article per week~~
 - ~~Publish an article~~
+
+### Healthy (3/5)
+
+- 10k steps per day
+- ≤1 alcohol / week
+- ~~Daily workouts~~
+- ~~Daily vitamins~~
+- ~~Daily 3L of water~~
 
 ### Academic (1.5/5)
 
