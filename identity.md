@@ -10,13 +10,21 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 
 ## Identities
 
-### Software Engineer (4/5)
+### Android Engineer (4/5)
 
-- Repository with 1000 stars
+- Deep understanding of build tooling
 - ~~Lead a team~~
-- ~~Become a subject matter expert~~
-- ~~Deep understanding of an ecosystem~~
+- ~~Confident in ability to solve any issue (eventually)~~
+- ~~Deep understanding of common Android libraries~~
 - ~~Deliver a major feature~~
+
+### Open Source Contributor (3/5)
+
+- ?
+- Repository with 1000 stars
+- ~~Repository with 100 stars~~
+- ~~Contribute daily~~
+- ~~Build everything in public by default~~
 
 ### Writer (3/5)
 
@@ -37,10 +45,10 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 ### Academic (1.5/5)
 
 - Cited in an academic paper
-- Published academic paper
+- Publish an academic paper
 - PhD
 - MBA (in progress)
-- ~~BSC Comp Sci~~
+- ~~BSC Computer Science~~
 
 ### Philanthropist (0.5/5)
 
