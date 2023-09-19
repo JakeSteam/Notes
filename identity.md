@@ -10,6 +10,8 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 
 ## Identities
 
+*Total: 15.5/30*
+
 ### Android Engineer (4/5)
 
 - Deep understanding of build tooling
@@ -18,9 +20,9 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - ~~Deep understanding of common Android libraries~~
 - ~~Deliver a major feature~~
 
-### Open Source Contributor (3/5)
+### Open Source Contributor (3.5/5)
 
-- ?
+- 10,000 StackOverflow points (currently ~7.5k)
 - Repository with 1000 stars
 - ~~Repository with 100 stars~~
 - ~~Contribute daily~~
