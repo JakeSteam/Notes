@@ -10,7 +10,7 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 
 ## Identities
 
-*Total from all 6: 15.5/30*
+*Total: 16/35*
 
 ### Android Engineer (4/5)
 
@@ -20,7 +20,7 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - ~~Deep understanding of common Android libraries~~
 - ~~Deliver a major feature~~
 
-### Open Source Contributor (3.5/5)
+### Open Source Contributor (3/5)
 
 - 10,000 StackOverflow points (currently ~7.5k)
 - Repository with 1000 stars (currently ~200)
@@ -32,19 +32,27 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 
 - 1000 visitors from Google search per day (currently ~180)
 - ~~100 visitors from Google search per day~~
-- Publish fiction
+- Publish multiple fiction stories
 - ~~Release at least 1 article per week~~
 - ~~Publish an article~~
 
-### Healthy (3/5)
+### Traditional (3/5)
+
+- Child
+- Marriage
+- ~~Long term relationship~~
+- ~~Career~~
+- ~~Family home~~
+
+### Healthy (2/5)
 
 - 10k steps per day
 - ≤1 alcohol / week
-- ~~Daily workouts~~
+- Daily workouts
 - ~~Daily vitamins~~
 - ~~Daily 3L of water~~
 
-### Academic (1.5/5)
+### Academic (1/5)
 
 - Cited in an academic paper
 - Publish an academic paper
@@ -52,9 +60,9 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - MBA (in progress)
 - ~~BSC Computer Science~~
 
-### Philanthropist (0.5/5)
+### Philanthropist (0/5)
 
-- Unexpected publicity about fundraising
+- Mainstream publicity about charity
 - Raise 5 figures for charity
 - Raise 4 figures for charity
 - Raise any money for charity
