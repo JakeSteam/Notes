@@ -2,9 +2,9 @@
 
 ### Books
 
-I'm always very grateful for new recommendations in any genre, fiction or non-fiction! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
+I'm always very grateful for new books in any genre, fiction or non-fiction, used or new! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
 
-Books I’d especially like:
+Books I’d especially like (they might be cheaper elsewhere):
 
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
