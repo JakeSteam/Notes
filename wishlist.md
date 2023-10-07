@@ -11,7 +11,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 - [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
-- [Trinity: a Graphic History of the First Atomic Bomb](https://www.amazon.co.uk/dp/0809093553)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
 - [Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
@@ -32,7 +31,6 @@ Books I’d especially like (they might be cheaper elsewhere):
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
-    - [Up-Scaled LEGO Minifigure](https://www.lego.com/en-gb/product/up-scaled-lego-minifigure-40649)
 
 ### Gift Cards
 
@@ -46,10 +44,8 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Home
 
-- [Bird Feeding Station](https://www.lovegardenbirds.co.uk/select-bird-feeding-station.html)
 - [Wifi Mesh](https://www.amazon.co.uk/TP-Link-Dual-Band-Coverage-Parental-Controls/dp/B0B644N72G/)
 - [Ammonite Porcelain Lamp](https://www.dunelm.com/product/porcelain-ammonite-lamp-1000214055?defaultSkuId=30803328)
-- [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey) (A1/2, signed)
 - [Hozelock Ultraflex Hose](https://www.amazon.co.uk/Hozelock-Ultra-Flex-Hose-30/dp/B00B0OR06C)
 - Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/collections/nordic-collection/products/swan-nordic-towel-pole-with-bamboo-base?variant=34805661237399)
 
