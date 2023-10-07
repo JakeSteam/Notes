@@ -27,7 +27,6 @@ Books I’d especially like (they might be cheaper elsewhere):
     - [Bugatti Chiron](https://www.lego.com/en-gb/product/bugatti-chiron-42083)
     - [Lamborghini Sián FKP 37](https://www.lego.com/en-gb/product/lamborghini-sian-fkp-37-42115)
 - £100 - £300
-    - [Porsche 911 RSR](https://www.lego.com/en-gb/product/porsche-911-rsr-42096)
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
