@@ -26,8 +26,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131)
-    - [Bugatti Chiron](https://www.lego.com/en-gb/product/bugatti-chiron-42083)
-    - [Lamborghini Sián FKP 37](https://www.lego.com/en-gb/product/lamborghini-sian-fkp-37-42115)
 - £100 - £300
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
