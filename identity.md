@@ -10,7 +10,7 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 
 ## Identities
 
-*Total: 16/35*
+*Total: 19/35*
 
 ### Android Engineer (4/5)
 
@@ -34,7 +34,7 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - ~~100 visitors from Google search per day~~
 - Publish multiple fiction stories
 - ~~Release at least 1 article per week~~
-- ~~Publish an article~~
+- ~~Publish technical & non-technical articles~~
 
 ### Traditional (3/5)
 
@@ -44,11 +44,11 @@ We are all on multiple overlapping and contradicting "paths". Focusing on one mi
 - ~~Career~~
 - ~~Family home~~
 
-### Healthy (2/5)
+### Healthy (5/5)
 
-- 10k steps per day
-- ≤1 alcohol / week
-- Daily workouts
+- ~~10k steps per day~~
+- ~~≤1 alcohol / week~~
+- ~~Daily workouts~~
 - ~~Daily vitamins~~
 - ~~Daily 3L of water~~
 
