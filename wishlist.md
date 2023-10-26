@@ -6,26 +6,26 @@ I'm always very grateful for new books in any genre, fiction or non-fiction, use
 
 Books I’d especially like (they might be cheaper elsewhere):
 
-- [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
+- [A City On Mars](https://www.amazon.co.uk/dp/024145493X/)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
-- [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
-- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
+- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
 - [Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
+- [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
 - [Inside Black Mirror: The Illustrated Oral History](https://www.amazon.co.uk/dp/1529102588/)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Art and Soul of Dune](https://www.amazon.co.uk/dp/178909609X/)
+- [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
+- [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
 ### Lego
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131)
-    - [Bugatti Chiron](https://www.lego.com/en-gb/product/bugatti-chiron-42083)
-    - [Lamborghini Sián FKP 37](https://www.lego.com/en-gb/product/lamborghini-sian-fkp-37-42115)
 - £100 - £300
     - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
