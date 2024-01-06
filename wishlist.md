@@ -59,6 +59,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Other
 
+- [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2)
 - [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
