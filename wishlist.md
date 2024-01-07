@@ -20,6 +20,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Art and Soul of Dune](https://www.amazon.co.uk/dp/178909609X/)
+- The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 - [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
@@ -49,28 +50,28 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - [Ammonite Porcelain Lamp](https://www.dunelm.com/product/porcelain-ammonite-lamp-1000214055?defaultSkuId=30803328)
 - Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/collections/nordic-collection/products/swan-nordic-towel-pole-with-bamboo-base?variant=34805661237399)
+- [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
+- [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
+- [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/collection/full-collection/multi-colour-roundel-mug)
 
 ### Food & Drink
 
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - Any Coffee Beans (whole, roasted)
 - Any Protein Bars
-- Any Peanut Butters
 
 ### Other
 
+- [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
 - [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2)
 - [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
-- [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
-- [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
-- [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/collection/full-collection/multi-colour-roundel-mug)
-- [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
 
 ## For Cassie 😻
 
 - [Cat Tunnel Donut](https://www.amazon.co.uk/dp/B08CDSPYNW/)
 - [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
-- [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/) (or others)
+- [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/)
+- Anything else by "Yeowww!"
 - [Encore Tuna Fillet Pouches](https://www.amazon.co.uk/dp/B005QMUL9W/)
 - [Circular Cat Scratching Post](https://www.amazon.co.uk/dp/B083LZBHM9)
 - [Scratching Post Laptop](https://www.amazon.co.uk/dp/B00ZFSFOO4)
