@@ -6,21 +6,26 @@ I'm always very grateful for new books in any genre, fiction or non-fiction, use
 
 Books I’d especially like (they might be cheaper elsewhere):
 
+#### Fiction
+
+- [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
+- [Double or Nothing](https://www.abebooks.co.uk/servlet/BookDetailsPL?bi=31705404084)
+- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
+- The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
+
+#### Non-fiction
 - [A City On Mars](https://www.amazon.co.uk/dp/024145493X/)
 - [A History of the World in 500 Maps](https://www.amazon.co.uk/dp/0500252653)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
-- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
 - [Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
-- [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
 - [Inside Black Mirror: The Illustrated Oral History](https://www.amazon.co.uk/dp/1529102588/)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Art and Soul of Dune](https://www.amazon.co.uk/dp/178909609X/)
-- The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 - [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
