@@ -33,13 +33,10 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131)
-- £100 - £300
-    - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
 - < £100
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
     - [Vespa 125](https://www.lego.com/en-gb/product/vespa-125-10298)
     - [NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266)
-    - [Space Shuttle (£8.99!)](https://www.lego.com/en-gb/product/space-shuttle-31134)
 
 ### Gift Cards
 
