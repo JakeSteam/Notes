@@ -35,11 +35,13 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
-- < £100
-    - [Sun, Earth, Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) *(Coming soon)* 
-    - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
-    - [Vespa 125](https://www.lego.com/en-gb/product/vespa-125-10298)
+- £100 - £300
+    - [Mercedes-AMG F1 W14](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) *(Coming soon)*
+- £0 - £100
     - [NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) *(Retired)*
+    - [Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) *(Coming soon)*
+    - [Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
+    - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
 
 ### Gift Cards
 
