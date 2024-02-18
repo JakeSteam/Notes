@@ -55,7 +55,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Home
 
-- [Ammonite Porcelain Lamp](https://www.dunelm.com/product/porcelain-ammonite-lamp-1000214055?defaultSkuId=30803328)
 - Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/collections/nordic-collection/products/swan-nordic-towel-pole-with-bamboo-base?variant=34805661237399)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
