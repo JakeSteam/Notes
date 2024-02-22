@@ -55,7 +55,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Home
 
-- Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/collections/nordic-collection/products/swan-nordic-towel-pole-with-bamboo-base?variant=34805661237399)
 - [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/collection/full-collection/multi-colour-roundel-mug)
@@ -69,8 +68,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Other
 
 - [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
-- [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2)
-- [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
 
 ## For Cassie 😻
 
@@ -86,3 +83,20 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [GoCat Da Bird](https://www.amazon.co.uk/dp/B000F9JJJE/)
 - [Slow Feeder](https://www.amazon.co.uk/dp/B00EB4IV2A/)
 - [Digger Feeder](https://www.amazon.co.uk/dp/B015P13QMM/)
+
+---
+
+## Stuff I'll probably buy myself
+
+### Kitchen
+- **Knives**: [Ninja Knife Set w/Scissors & Sharpener](https://www.amazon.co.uk/dp/B09WYZ4CNS?th=1)
+- Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/collections/nordic-collection/products/swan-nordic-towel-pole-with-bamboo-base?variant=34805661237399)
+- **Air Fryer**
+- **Rice Cooker**
+
+### Tech
+- **Security camera**: [Eufy S330 & 1TB HDD](https://uk.eufy.com/products/bundle-t88713w1-1-t80303d1-81-1)?
+- **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
+- **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
+- **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2)
+- **Charger**: [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
