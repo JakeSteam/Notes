@@ -31,7 +31,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Lego
 
-*Note: "Retired" sets can no longer be purchased from Lego.com, but are probably avaiable elsewhere!*
+*Note: "Retired" sets can no longer be purchased from Lego.com, but are usually available elsewhere!*
 
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
