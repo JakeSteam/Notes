@@ -36,10 +36,12 @@ Books I’d especially like (they might be cheaper elsewhere):
 - £300+
     - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
 - £100 - £300
-    - [Mercedes-AMG F1 W14](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) *(Coming soon)*
+    - [Mercedes-AMG F1 W14](https://www.lego.com/en-gb/product/mercedes-amg-f1-w14-e-performance-42171)
 - £0 - £100
+    - [McLaren F1 Car Medium](https://www.lego.com/en-gb/product/2023-mclaren-formula-1-race-car-76919)
+    - [McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) *(Coming soon)*
     - [NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) *(Retired)*
-    - [Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) *(Coming soon)*
+    - [Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) 
     - [Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
     - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
 
