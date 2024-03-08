@@ -95,9 +95,12 @@ Books I’d especially like (they might be cheaper elsewhere):
 - **Air Fryer**
 - **Rice Cooker**
 
-### Tech
+### House tech
 - **Security camera**: [Eufy S330 & 1TB HDD](https://uk.eufy.com/products/bundle-t88713w1-1-t80303d1-81-1)?
 - **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
 - **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
-- **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (picture by picture mode), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html).
+
+### Personal tech
+- **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ)
+- **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (if picture by picture mode meets all requirements), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html) if not
 - **Charger**: [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
