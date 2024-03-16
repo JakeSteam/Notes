@@ -70,6 +70,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Other
 
 - [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
+- [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
 
 ## For Cassie 😻
 
