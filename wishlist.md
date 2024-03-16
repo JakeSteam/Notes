@@ -70,7 +70,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Other
 
 - [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
-- [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
 
 ## For Cassie 😻
 
@@ -105,3 +104,4 @@ Books I’d especially like (they might be cheaper elsewhere):
 - **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ)
 - **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (if picture by picture mode meets all requirements), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html) if not
 - **Charger**: [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
+- **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
