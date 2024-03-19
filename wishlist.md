@@ -29,21 +29,20 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 - [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
-### Lego
-
-*Note: "Retired" sets can no longer be purchased from Lego.com, but are usually available elsewhere!*
+### Lego & similar
 
 - £300+
-    - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
-- £100 - £300
-    - [Mercedes-AMG F1 W14](https://www.lego.com/en-gb/product/mercedes-amg-f1-w14-e-performance-42171)
-- £0 - £100
-    - [McLaren F1 Car Medium](https://www.lego.com/en-gb/product/2023-mclaren-formula-1-race-car-76919)
-    - [McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) *(Coming soon)*
-    - [NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) *(Retired)*
-    - [Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) 
-    - [Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
-    - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
+    - [LEGO App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
+- £50 - £100
+    - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
+    - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) *(Retired)*
+- £0 - £50
+    - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
+    - [LEGO McLaren F1 Car Medium](https://www.lego.com/en-gb/product/2023-mclaren-formula-1-race-car-76919)
+    - [LEGO McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) *(Coming soon)*
+    - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) 
+    - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
+    - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
 
 ### Gift Cards
 
