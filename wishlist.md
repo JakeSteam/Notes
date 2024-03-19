@@ -43,6 +43,8 @@ Books I’d especially like (they might be cheaper elsewhere):
     - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) 
     - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
     - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
+    - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
+    - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
 
 ### Gift Cards
 
