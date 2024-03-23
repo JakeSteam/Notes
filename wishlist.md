@@ -25,7 +25,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
-- [The Art and Soul of Dune](https://www.amazon.co.uk/dp/178909609X/)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 - [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
@@ -58,7 +57,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Home
 
-- [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
+- [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
 
