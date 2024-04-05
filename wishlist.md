@@ -6,6 +6,11 @@ I'm always very grateful for new books in any genre, fiction or non-fiction, use
 
 Books I’d especially like (they might be cheaper elsewhere):
 
+#### Box sets
+
+- [Penguin Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
+- [Penguin Modern Box Set](https://www.amazon.co.uk/Penguin-Modern-Box-Set-HB/dp/0241421349)
+
 #### Fiction
 
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
@@ -14,12 +19,12 @@ Books I’d especially like (they might be cheaper elsewhere):
 - The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 
 #### Non-fiction
+
 - [A City On Mars](https://www.amazon.co.uk/dp/024145493X/)
 - [A History of the World in 500 Maps](https://www.amazon.co.uk/dp/0500252653)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
-- [Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Inside Black Mirror: The Illustrated Oral History](https://www.amazon.co.uk/dp/1529102588/)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
@@ -31,19 +36,19 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Lego & similar
 
 - £300+
-    - [LEGO App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) *(Retired)*
+  - [LEGO App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) _(Retired)_
 - £50 - £100
-    - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
-    - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) *(Retired)*
+  - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
+  - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
 - £0 - £50
-    - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
-    - [LEGO McLaren F1 Car Medium](https://www.lego.com/en-gb/product/2023-mclaren-formula-1-race-car-76919)
-    - [LEGO McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) *(Coming soon)*
-    - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179) 
-    - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
-    - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
-    - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
-    - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
+  - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
+  - [LEGO McLaren F1 Car Medium](https://www.lego.com/en-gb/product/2023-mclaren-formula-1-race-car-76919)
+  - [LEGO McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) _(Coming soon)_
+  - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
+  - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
+  - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
+  - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
+  - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
 
 ### Gift Cards
 
@@ -91,16 +96,20 @@ Books I’d especially like (they might be cheaper elsewhere):
 ## Stuff I'll probably buy myself
 
 ### Kitchen
+
 - Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/products/nordic-towel-pole-with-bamboo-base)
 - **Air Fryer**
 - **Rice Cooker**
+- **Corner rotating Spice Rack**
 
 ### House tech
+
 - **Security camera**: [Eufy 4x E330 & 1TB HDD](https://uk.eufy.com/products/e8600323)
 - **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
 - **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
 
 ### Personal tech
+
 - **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ)
 - **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (if picture by picture mode meets all requirements), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html) if not
 - **Charger**: [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
