@@ -9,7 +9,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 #### Box sets
 
 - [Penguin Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
-- [Penguin Modern Box Set](https://www.amazon.co.uk/Penguin-Modern-Box-Set-HB/dp/0241421349)
 
 #### Fiction
 
