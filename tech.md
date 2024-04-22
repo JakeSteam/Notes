@@ -15,5 +15,5 @@
 
 - Phone: [Samsung Galaxy S23](https://www.samsung.com/uk/smartphones/galaxy-s23/) w/ [Spigen Case](https://www.amazon.co.uk/Spigen-Tough-Compatible-Samsung-Galaxy-Black/dp/B0BJRS327S/)
 - Headphones: [Sony WH-1000XM4](https://www.amazon.co.uk/dp/B08C7KG5LP/)
-- eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B08N3TCP2F/)
+- eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B09TMF6742/)
 - Controller: [Xbox Wireless Controller](https://www.xbox.com/en-GB/accessories/controllers/xbox-wireless-controller) w/ [Razer Stand](https://www.razer.com/gb-en/console-accessories/razer-universal-quick-charging-stand-for-xbox)
