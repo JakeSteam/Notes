@@ -2,7 +2,7 @@
 
 ### Books
 
-I'm always very grateful for new books in any genre, fiction or non-fiction, used or new! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
+I'm always very grateful for new books / book suggestions in any genre, fiction or non-fiction, used or new! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
 
 Books I’d especially like (they might be cheaper elsewhere):
 
@@ -106,6 +106,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 - **Security camera**: [Eufy 4x E330 & 1TB HDD](https://uk.eufy.com/products/e8600323)
 - **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
 - **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
+- **Speaker**: [Anker Soundcore 3](https://www.amazon.co.uk/Soundcore-Bluetooth-Diaphragm-Technology-Waterproof/dp/B08BCHKY52/)
 
 ### Personal tech
 
