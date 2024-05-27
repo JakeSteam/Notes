@@ -107,6 +107,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 - **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
 - **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
 - **Speaker**: [Anker Soundcore 3](https://www.amazon.co.uk/Soundcore-Bluetooth-Diaphragm-Technology-Waterproof/dp/B08BCHKY52/)
+- **Printer**: [Canon PIXMA G3571](https://www.currys.co.uk/products/canon-pixma-g3571-allinone-wireless-inkjet-printer-white-10251894.html)
 
 ### Personal tech
 
