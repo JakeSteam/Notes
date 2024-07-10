@@ -14,7 +14,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
 - [Double or Nothing](https://www.abebooks.co.uk/servlet/BookDetailsPL?bi=31705404084)
-- [House of Leaves](https://www.amazon.co.uk/dp/0375420525/) (Hardback only please, I know it's expensive!)
+- [House of Leaves](https://www.amazon.co.uk/dp/152994399X/) (Hardback only please, I know it's expensive!)
 - The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 
 #### Non-fiction
