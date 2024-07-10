@@ -38,6 +38,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - £300+
   - [LEGO App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) _(Retired)_
+  - [LEGO McLaren P1](https://www.lego.com/en-gb/product/mclaren-p1-42172)
 - £50 - £100
   - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
