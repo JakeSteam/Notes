@@ -1,4 +1,4 @@
-* [Owned LEGO](/lego.md)
-* [Owned Tech](/tech.md)
-* [Wishlist](/wishlist.md)
-
+- [Book recommendations](/books.md)
+- [Owned LEGO](/lego.md)
+- [Owned Tech](/tech.md)
+- [Wishlist](/wishlist.md)
