@@ -44,7 +44,6 @@ Books I’d especially like (they might be cheaper elsewhere):
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
 - £0 - £50
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
-  - [LEGO McLaren F1 Car Small](https://brickset.com/sets/30683-1/McLaren-Formula-1-Car) _(Coming soon)_
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
   - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
   - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
