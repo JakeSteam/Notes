@@ -16,6 +16,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [Double or Nothing](https://www.abebooks.co.uk/servlet/BookDetailsPL?bi=31705404084)
 - [House of Leaves](https://www.amazon.co.uk/dp/152994399X/) (Hardback only please, I know it's expensive!)
 - The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
+- [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
 
 #### Non-fiction
 
