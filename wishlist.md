@@ -75,7 +75,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Other
 
-- [Hot Wheels Forza Horizon Set](https://www.ebay.co.uk/itm/334423279504) (All 5, hard to find!)
+- [Hot Wheels Forza Horizon Set](https://hotwheels.fandom.com/wiki/Forza_Horizon_Series_(2021)) (All 5, hard to find!)
 - [Cat food delivered via quadcopter!](https://www.patreon.com/ProhorTv/shop/your-logo-on-quadcopter-252718) ([instagram](https://www.instagram.com/prohor.tv/))
 
 ## For Cassie 😻
