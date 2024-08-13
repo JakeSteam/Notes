@@ -72,6 +72,11 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - Any Coffee Beans (whole, roasted)
 - Any Protein Bars
+- Any Bird Food (for birds, obviously!) e.g.:
+    - [Suet Balls](https://www.amazon.co.uk/Suet-Shop-Standard-Energy-Protein/dp/B0CP65DCVZ/)
+    - [Mealworms](https://www.amazon.co.uk/Premium-Dried-Mealworms-5-Litre/dp/B086CC8D6R/)
+    - [Peanuts](https://www.amazon.co.uk/Garden-Ting-Premium-Peanut-Kernels/dp/B08MF1HS7G/)
+    - [No-Grow Seeds](https://www.amazon.co.uk/Extra-Select-grow-Wild-Bucket/dp/B07Z2M6N8G/)
 
 ### Other
 
