@@ -108,8 +108,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Kitchen
 
 - Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/products/nordic-towel-pole-with-bamboo-base)
-- **Air Fryer**
-- **Rice Cooker**
 - **Corner rotating Spice Rack**
 
 ### House tech
