@@ -13,7 +13,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 #### Fiction
 
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
-- [Double or Nothing](https://www.abebooks.co.uk/servlet/BookDetailsPL?bi=31705404084)
+- [Double or Nothing](https://www.amazon.co.uk/Double-Nothing-Real-Fictitious-Discourse/dp/1573660752/)
 - [House of Leaves](https://www.amazon.co.uk/dp/152994399X/) (Hardback only please, I know it's expensive!)
 - The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
@@ -65,7 +65,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### Home
 
 - [Android Figurine](https://your.merch.google/android-figurine.html)
-- [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
+- [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
 - [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) *(US only!)*
@@ -113,7 +113,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 ### House tech
 
 - **Security camera**: [Eufy 4x E330 & 1TB HDD](https://uk.eufy.com/products/e8600323)
-- **TV**: [55" LG LCD](https://www.which.co.uk/reviews/televisions/lg-55qned756ra)?
+- **TV**: 55"... something?
 - **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
 
 ### Personal tech
