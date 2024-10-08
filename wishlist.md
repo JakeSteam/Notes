@@ -34,7 +34,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Penguin Modern Classics Book](https://www.amazon.co.uk/dp/0241441609)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
-- [You Are What You Watch](https://www.amazon.co.uk/dp/1523515899/)
 
 ### Lego & similar
 
@@ -45,6 +44,7 @@ Books I’d especially like (they might be cheaper elsewhere):
   - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
 - £0 - £50
+  - [(5x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
   - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
