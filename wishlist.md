@@ -14,14 +14,11 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - [Bad Man: A Novel](https://www.amazon.co.uk/dp/0385542925/)
 - [Double or Nothing](https://www.amazon.co.uk/Double-Nothing-Real-Fictitious-Discourse/dp/1573660752/)
-- [House of Leaves](https://www.amazon.co.uk/dp/152994399X/) (Hardback only please, I know it's expensive!)
 - The Familiar, [Volume 2](https://www.amazon.co.uk/Familiar-2-Into-Forest/dp/0375714960/) & [Volume 3](https://www.amazon.co.uk/Familiar-3-Honeysuckle-Pain/dp/0375714987/)
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
 
 #### Non-fiction
 
-- [A City On Mars](https://www.amazon.co.uk/dp/024145493X/)
-- [A History of the World in 500 Maps](https://www.amazon.co.uk/dp/0500252653)
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
