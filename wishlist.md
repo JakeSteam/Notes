@@ -60,7 +60,7 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Home
 
-- [Android Figurine](https://your.merch.google/android-figurine.html)
+- [Android Figurine](https://your.merch.google/android-figurine.html) (sold out, maybe [Glow in the Dark](https://your.merch.google/android-glow-in-the-dark-figurine.html) instead!)
 - [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
 - [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
