@@ -4,7 +4,7 @@
 
 I'm always very grateful for new books / book suggestions in any genre, fiction or non-fiction, used or new! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
 
-Books I’d especially like (they might be cheaper elsewhere):
+Books I'd especially like (they might be cheaper elsewhere):
 
 #### Box sets
 
@@ -33,9 +33,6 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 ### Lego & similar
 
-- £300+
-  - [LEGO App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131) _(Retired)_
-  - [LEGO McLaren P1](https://www.lego.com/en-gb/product/mclaren-p1-42172)
 - £50 - £100
   - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
@@ -116,5 +113,4 @@ Books I’d especially like (they might be cheaper elsewhere):
 
 - **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ) (& [XM4 replacement pads](https://www.amazon.co.uk/SOULWIT-Replacement-WH-1000XM4-Canceling-Headphones-Black/dp/B09BW32ZCZ/))
 - **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (if picture by picture mode meets all requirements), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html) if not
-- **Charger**: [SlimQ 240W charger w/Lenovo tips](https://slimq.life/products/240w-dc-usb-c-gan-charger?variant=40122889601206)
 - **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
