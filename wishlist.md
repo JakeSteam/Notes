@@ -27,6 +27,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [Sapiens: Volume 2](https://www.amazon.co.uk/dp/1787333760)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
+- [The Art of the Octocat](https://www.thegithubshop.com/1536824-00-art-of-the-octocat-book)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
 - [The Penguin Modern Classics Book](https://www.amazon.co.uk/dp/0241441609)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
