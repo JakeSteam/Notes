@@ -7,8 +7,8 @@
 - Personal Laptop: [Lenovo Thinkbook 16p Gen 2](https://www.amazon.co.uk/dp/B0B6PTVC3H/)
 - Work Laptop: [2021 16" M1 MacBook Pro](https://www.apple.com/uk/macbook-pro-14-and-16/)
 - Webcam: [Anker PowerConf C200 Webcam](https://www.amazon.co.uk/gp/product/B09MFMTMPD/)
-- Keyboard: [Logitech MX Keys](https://www.logitech.com/en-gb/products/keyboards/mx-keys-wireless-keyboard.html)
-- Mouse: [MX Master 3](https://www.amazon.co.uk/Logitech-Ultrafast-Scrolling-Ergonomic-Customisation/dp/B07W6JG6Z7)
+- Keyboard: [Logitech MX Keys S](https://www.logitech.com/en-gb/products/keyboards/mx-keys-wireless-keyboard.html)
+- Mouse: [Logitech MX Master 3](https://www.amazon.co.uk/Logitech-Ultrafast-Scrolling-Ergonomic-Customisation/dp/B07W6JG6Z7)
 - Monitors: 3x [Electriq 27" 1440p 95Hz Monitors](https://www.amazon.co.uk/dp/B07TXHBWMK/) w/ [HUANUO Dual Monitor Arm](https://www.amazon.co.uk/dp/B08LK6MRYB/) & [Single Monitor Arm](https://www.amazon.co.uk/dp/B07T4HQS2N/)
 - Printer: [Canon PIXMA TS5150](https://www.amazon.co.uk/dp/B075CL64RV)
 
