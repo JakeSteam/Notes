@@ -19,17 +19,14 @@ Books I'd especially like (they might be cheaper elsewhere):
 #### Non-fiction
 
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
-- [Attack of the Flickering Skeletons: More Terrible Old Games You’ve Probably Never Heard Of](https://www.amazon.co.uk/dp/1783524138/)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
-- [Inside Black Mirror: The Illustrated Oral History](https://www.amazon.co.uk/dp/1529102588/)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
 - [Sapiens: Volume 2](https://www.amazon.co.uk/dp/1787333760)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Octocat](https://www.thegithubshop.com/1536824-00-art-of-the-octocat-book)
 - [The Art of the Mass Effect Universe](https://www.amazon.co.uk/dp/1595827684/)
-- [The Penguin Modern Classics Book](https://www.amazon.co.uk/dp/0241441609)
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 
 ### Lego & similar
@@ -41,7 +38,6 @@ Books I'd especially like (they might be cheaper elsewhere):
   - [(5x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
-  - [LEGO Space Astronaut](https://www.lego.com/en-gb/product/space-astronaut-31152)
   - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
   - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
   - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
@@ -78,7 +74,6 @@ Books I'd especially like (they might be cheaper elsewhere):
 ### Other
 
 - [Cat food delivered via quadcopter!](https://www.patreon.com/ProhorTv/shop/your-logo-on-quadcopter-252718) ([instagram](https://www.instagram.com/prohor.tv/))
-- [Cats Protection Boxers (medium)!](https://www.myoddballs.com/products/cats-protection-2024-mens-boxer-shorts)
 
 ## For Cassie 😻
 
@@ -86,7 +81,6 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
 - [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/)
 - Anything else by "Yeowww!"
-- [Encore Tuna Fillet Pouches](https://www.amazon.co.uk/dp/B005QMUL9W/)
 - [Circular Cat Scratching Post](https://www.amazon.co.uk/dp/B083LZBHM9)
 - [Scratching Post Laptop](https://www.amazon.co.uk/dp/B00ZFSFOO4)
 - [Collapsible Play Mat](https://www.amazon.co.uk/dp/B07F2G7ZHT)
