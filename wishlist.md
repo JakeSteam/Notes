@@ -107,5 +107,5 @@ Books I'd especially like (they might be cheaper elsewhere):
 ### Personal tech
 
 - **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ) (& [XM4 replacement pads](https://www.amazon.co.uk/SOULWIT-Replacement-WH-1000XM4-Canceling-Headphones-Black/dp/B09BW32ZCZ/))
-- **Monitor**: [ElectriQ 49" Ultrawide](https://www.laptopsdirect.co.uk/electriq-49-qled-5k-uwhd-120hz-curved-monitor-eiq-49cv5uwd120fshqa/version.asp?wgu=272145_1293805_17045396036286_f5d3ab10c2) (if picture by picture mode meets all requirements), or 2x [34" Ultrawide](https://www.currys.co.uk/products/acer-cz342cur-wide-quad-hd-34-curved-va-lcd-monitor-black-10251643.html) if not
+- **Monitor**: [32" 4K monitor](https://www.amazon.co.uk/Samsung-LU32J590UQPXXU-UJ590-UHD-Monitor/dp/B0BS1NMMPD)
 - **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
