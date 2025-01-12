@@ -107,5 +107,4 @@ Books I'd especially like (they might be cheaper elsewhere):
 ### Personal tech
 
 - **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ) (& [XM4 replacement pads](https://www.amazon.co.uk/SOULWIT-Replacement-WH-1000XM4-Canceling-Headphones-Black/dp/B09BW32ZCZ/))
-- **Monitor**: [32" 4K monitor](https://www.amazon.co.uk/Samsung-LU32J590UQPXXU-UJ590-UHD-Monitor/dp/B0BS1NMMPD)
 - **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
