@@ -77,6 +77,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 ## For Cassie 😻
 
+- [Window Bird Feeder](https://www.amazon.co.uk/s?k=outside+window+bird+feeder)
 - [Cat Tunnel Donut](https://www.amazon.co.uk/dp/B08CDSPYNW/)
 - [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
 - [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/)
