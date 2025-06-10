@@ -36,6 +36,7 @@ Books I'd especially like (they might be cheaper elsewhere):
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
 - £0 - £50
   - [(5x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
+  - [LEGO Happy Plants](https://www.lego.com/en-gb/product/happy-plants-10349)
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
   - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
@@ -56,28 +57,22 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 - [Android Figurine](https://your.merch.google/android-figurine.html) (sold out, maybe [Glow in the Dark](https://your.merch.google/android-glow-in-the-dark-figurine.html) instead!)
 - [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
-- [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
-- [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) *(US only!)*
+- [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) _(US only!)_
 
 ### Food & Drink
 
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
 - Any Coffee Beans (whole, roasted)
 - Any Protein Bars
-- Any Bird Food (for birds, obviously!) e.g.:
-    - [Suet Balls](https://www.amazon.co.uk/Suet-Shop-Standard-Energy-Protein/dp/B0CP65DCVZ/)
-    - [Mealworms](https://www.amazon.co.uk/Premium-Dried-Mealworms-5-Litre/dp/B086CC8D6R/)
-    - [Peanuts](https://www.amazon.co.uk/Garden-Ting-Premium-Peanut-Kernels/dp/B08MF1HS7G/)
-    - [No-Grow Seeds](https://www.amazon.co.uk/Extra-Select-grow-Wild-Bucket/dp/B07Z2M6N8G/)
-
-### Other
-
-- [Cat food delivered via quadcopter!](https://www.patreon.com/ProhorTv/shop/your-logo-on-quadcopter-252718) ([instagram](https://www.instagram.com/prohor.tv/))
+- Any Bird Food e.g.:
+  - [Suet Balls](https://www.amazon.co.uk/Suet-Shop-Standard-Energy-Protein/dp/B0CP65DCVZ/)
+  - [Mealworms](https://www.amazon.co.uk/Premium-Dried-Mealworms-5-Litre/dp/B086CC8D6R/)
+  - [Peanuts](https://www.amazon.co.uk/Garden-Ting-Premium-Peanut-Kernels/dp/B08MF1HS7G/)
+  - [No-Grow Seeds](https://www.amazon.co.uk/Extra-Select-grow-Wild-Bucket/dp/B07Z2M6N8G/)
 
 ## For Cassie 😻
 
-- [Window Bird Feeder](https://www.amazon.co.uk/s?k=outside+window+bird+feeder)
 - [Cat Tunnel Donut](https://www.amazon.co.uk/dp/B08CDSPYNW/)
 - [Yeowww! Catnip Sardines](https://www.amazon.co.uk/dp/B00198RKEG/)
 - [Yeowww! Heart Toy](https://www.amazon.co.uk/dp/B001SGEF4M/)
@@ -107,5 +102,4 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 ### Personal tech
 
-- **Earbuds**: [Sony WF-1000XM5](https://www.amazon.co.uk/gp/product/B0C4TLFZSZ) (& [XM4 replacement pads](https://www.amazon.co.uk/SOULWIT-Replacement-WH-1000XM4-Canceling-Headphones-Black/dp/B09BW32ZCZ/))
 - **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
