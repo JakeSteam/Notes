@@ -20,6 +20,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 - [A Movie Making Nerd](https://www.amazon.co.uk/dp/B0BMF3VHQY/)
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
+- [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
 - [Sapiens: Volume 2](https://www.amazon.co.uk/dp/1787333760)
