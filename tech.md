@@ -7,8 +7,8 @@
 - Personal Laptop: [Lenovo Thinkbook 16p Gen 2](https://www.lenovo.com/gb/en/p/laptops/thinkbook/thinkbookp/thinkbook-16p-g2-ach/xxtbxpea600)
 - Work Laptop: [2021 16" M1 MacBook Pro](https://www.apple.com/uk/macbook-pro-14-and-16/)
 - Monitors (3x):
-    - [Lenovo 32" 4K Monitor](https://www.amazon.co.uk/dp/B0C8YVB3K8) & [Electriq 27" 1440p 95Hz Monitor (vertical)](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Dual Monitor Arm](https://www.amazon.co.uk/dp/B08LK6MRYB/))
-    - [Electriq 27" 1440p 95Hz Monitor](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Single Monitor Arm](https://www.amazon.co.uk/dp/B07T4HQS2N/))
+  - [Lenovo 32" 4K Monitor](https://www.amazon.co.uk/dp/B0C8YVB3K8) & [Electriq 27" 1440p 95Hz Monitor (vertical)](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Dual Monitor Arm](https://www.amazon.co.uk/dp/B08LK6MRYB/))
+  - [Electriq 27" 1440p 95Hz Monitor](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Single Monitor Arm](https://www.amazon.co.uk/dp/B07T4HQS2N/))
 
 ### Peripherals
 
@@ -22,6 +22,6 @@
 
 ### Portable
 
-- Phone: [Samsung Galaxy S23](https://www.samsung.com/uk/smartphones/galaxy-s23/) w/ [Spigen Case](https://www.amazon.co.uk/Spigen-Tough-Compatible-Samsung-Galaxy-Black/dp/B0BJRS327S/)
+- Phone: [Samsung Galaxy S23](https://www.samsung.com/uk/smartphones/galaxy-s25/) w/ [Spigen Case](https://www.amazon.co.uk/dp/B0DJ9VF2M6)
 - Headphones: [Galaxy Buds3 Pro (White)](https://www.samsung.com/uk/audio-sound/galaxy-buds/galaxy-buds3-pro-white-sm-r630nzwaeua/)
 - eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B09TMF6742/)
