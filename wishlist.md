@@ -22,7 +22,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
 - [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
-- [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
+- [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/) (physical seems sold out, hopefully it gets restocked 😔)
 - [Sapiens: Volume 2](https://www.amazon.co.uk/dp/1787333760)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
@@ -44,14 +44,16 @@ Books I'd especially like (they might be cheaper elsewhere):
   - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
   - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
 
-### Gift Cards
+### Gift Cards (bold is best!)
 
 - [Dunelm](https://www.dunelm.com/info/gift-cards)
 - [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
 - [IKEA](https://giftcard.ikea.co.uk/)
+- **[LEGO](https://www.lego.com/en-gb/gift-cards/buy)**
 - [Next](https://www4.next.co.uk/gift-cards)
 - [Patch Plants](https://www.patchplants.com/gb/en/vouchers/patch-9/)
-- [Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)
+- **[Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)**
+- **[Uniqlo](https://www.uniqlo.com/nl/en/special-feature/gift-card)**
 - [Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)
 
 ### Home
