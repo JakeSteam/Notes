@@ -62,6 +62,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
 - [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) _(US only!)_
+- [Anbernic RG35XX Plus emulator (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
 
 ### Food & Drink
 
@@ -87,22 +88,3 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [GoCat Da Bird](https://www.amazon.co.uk/dp/B000F9JJJE/)
 - [Slow Feeder](https://www.amazon.co.uk/dp/B00EB4IV2A/)
 - [Digger Feeder](https://www.amazon.co.uk/dp/B015P13QMM/)
-
----
-
-## Stuff I'll probably buy myself
-
-### Kitchen
-
-- Swan Nordic Slate Grey set: [Bread Bin](https://www.amazon.co.uk/Swan-SWKA17512GRYN-Nordic-Scandi-Cutting/dp/B07WTQVW4K) / [Kettle](https://www.amazon.co.uk/Swan-SK14610GRYN-Nordic-Kettle-Housing/dp/B07HXD9HBZ/) / [Toaster](https://www.amazon.co.uk/Swan-ST14620GRYN-Slice-Nordic-Toaster/dp/B07HX5QW15/) / [Towel Pole](https://shop.swan-brand.co.uk/products/nordic-towel-pole-with-bamboo-base)
-- **Corner rotating Spice Rack**
-
-### House tech
-
-- **Security camera**: [Eufy 4x E330 & 1TB HDD](https://uk.eufy.com/products/e8600323)
-- **TV**: 55"... something?
-- **Soundbar**: [Samsung?](https://www.amazon.co.uk/Samsung-Q600C-3-1-2ch-Soundbar-Speaker/dp/B0BXQ2HYSL)
-
-### Personal tech
-
-- **Handheld emulator**: [Anbernic RG35XX Plus (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
