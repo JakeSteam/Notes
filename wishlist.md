@@ -33,28 +33,26 @@ Books I'd especially like (they might be cheaper elsewhere):
 ### Lego & similar
 
 - £50 - £100
-  - [CADA Alfa Romeo F1](https://www.yourwobb.com/collections/cada/products/cada-c64005-alfa-romeo-f1-team-orlen-c42-2022?variant=43122022023324)
   - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
+  - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
+  - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
 - £0 - £50
-  - [(5x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [LEGO Happy Plants](https://www.lego.com/en-gb/product/happy-plants-10349)
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
-  - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
-  - [MARSTOY Great Wave](https://www.marstoy.net/products/the-hokusai-the-great-wave)
-  - [MARSTOY Bugatti Chiron](https://www.marstoy.net/products/the-bugatti-chiron)
+  - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340) _(Retired)_
 
-### Gift Cards (bold is best!)
+### Gift Cards (* = preferred!)
 
 - [Dunelm](https://www.dunelm.com/info/gift-cards)
 - [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
 - [IKEA](https://giftcard.ikea.co.uk/)
-- **[LEGO](https://www.lego.com/en-gb/gift-cards/buy)**
+- _**[LEGO](https://www.lego.com/en-gb/gift-cards/buy)**_*
 - [Next](https://www4.next.co.uk/gift-cards)
 - [Patch Plants](https://www.patchplants.com/gb/en/vouchers/patch-9/)
-- **[Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)**
-- **[Uniqlo](https://www.uniqlo.com/nl/en/special-feature/gift-card)**
-- [Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)
+- _**[Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)**_*
+- _**[Uniqlo](https://www.uniqlo.com/nl/en/special-feature/gift-card)**_*
+- _**[Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)**_*
 
 ### Home
 
