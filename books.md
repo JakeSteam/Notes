@@ -2,6 +2,8 @@
 
 I read a lot. I track all my [owned](https://www.goodreads.com/review/list/29398258?shelf=own) & [read](https://www.goodreads.com/review/list/29398258?shelf=read) books on Goodreads, [feel free to add me](https://www.goodreads.com/jakesteam) for mutual recommendations!
 
+*Last updated: July 2024*
+
 ### Favourite books
 
 #### Fiction
