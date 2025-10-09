@@ -12,7 +12,6 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 #### Fiction
 
-- [Double or Nothing](https://www.amazon.co.uk/Double-Nothing-Real-Fictitious-Discourse/dp/1573660752/)
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
 
 #### Non-fiction
