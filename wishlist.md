@@ -6,17 +6,12 @@ I'm always very grateful for new books / book suggestions in any genre, fiction 
 
 Books I'd especially like (they might be cheaper elsewhere):
 
-#### Box sets
-
-- [Penguin Little Black Classics Box Set](https://www.amazon.co.uk/dp/0141398876/)
-
 #### Fiction
 
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
 
 #### Non-fiction
 
-- [Cinemaps: An Atlas of 35 Great Movies](https://www.amazon.co.uk/dp/1594749892/)
 - [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/) (physical seems sold out, hopefully it gets restocked 😔)
