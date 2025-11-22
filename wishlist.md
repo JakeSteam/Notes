@@ -16,6 +16,7 @@ Books I'd especially like (they might be cheaper elsewhere):
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/) (physical seems sold out, hopefully it gets restocked 😔)
 - [Plotted: A Literary Atlas](https://www.amazon.co.uk/dp/1936976862/)
+- [Sapiens A Graphic History: Volume 3](https://www.amazon.co.uk/dp/191171726X)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
 - [The Art of the Octocat](https://www.thegithubshop.com/1536824-00-art-of-the-octocat-book)
