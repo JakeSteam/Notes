@@ -4,11 +4,11 @@
 
 - Desk: [Flexispot E7 w/ 140x80cm Black Walnut](https://flexispot.co.uk/adjustable-standing-desk-pro-series.html)
 - Chair: [IKEA Markus](https://www.ikea.com/gb/en/p/markus-office-chair-vissle-light-grey-50521861/)
-- Personal Laptop: [Lenovo ThinkBook 16p Gen 6](https://www.lenovo.com/gb/en/p/laptops/thinkbook/thinkbookp/thinkbook-16p-gen-6-16-inch-intel/21r0cto1wwgb2) ~[Lenovo ThinkBook 16p Gen 2](https://www.lenovo.com/gb/en/p/laptops/thinkbook/thinkbookp/thinkbook-16p-g2-ach/xxtbxpea600)~
+- Personal Laptop: [Lenovo ThinkBook 16p Gen 6](https://www.lenovo.com/gb/en/p/laptops/thinkbook/thinkbookp/thinkbook-16p-gen-6-16-inch-intel/21r0cto1wwgb2) *([comparison article to Gen 2](https://blog.jakelee.co.uk/thinkbook-gen-2-and-6-comparison/))*
   - CPU: Intel Core Ultra 9 275HX
   - GPU: NVIDIA GeForce RTX 5060 (Laptop) 8GB
   - RAM: 32GB DDR5-5600MT/s
-  - SSD: 1TB 2242 PCIe Gen4
+  - SSD: 1TB 2242 PCIe 4
 - Work Laptop: [2021 16" M1 MacBook Pro](https://www.apple.com/uk/macbook-pro-14-and-16/)
 - Monitors (3x):
   - [Lenovo 32" 4K Monitor](https://www.amazon.co.uk/dp/B0C8YVB3K8) & [Electriq 27" 1440p 95Hz Monitor (vertical)](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Dual Monitor Arm](https://www.amazon.co.uk/dp/B08LK6MRYB/))
@@ -28,4 +28,4 @@
 
 - Phone: [Samsung Galaxy S25](https://www.samsung.com/uk/smartphones/galaxy-s25/) w/ [Spigen Case](https://www.amazon.co.uk/dp/B0DJ9VF2M6)
 - Headphones: [Galaxy Buds3 Pro (White)](https://www.samsung.com/uk/audio-sound/galaxy-buds/galaxy-buds3-pro-white-sm-r630nzwaeua/)
-- eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B09TMF6742/)
+- eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B09TMF6742/) *([comparison article to v3](https://jakelee.co.uk/kindle-paperwhite-3-vs-paperwhite-5/))*
