@@ -10,11 +10,11 @@ Books I'd especially like (they might be cheaper elsewhere):
 
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
 
-#### Non-fiction
+#### Non-fiction (lots are sold out, sorry! 😔)
 
 - [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
 - [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
-- [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/) (physical seems sold out, hopefully it gets restocked 😔)
+- [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
 - [Plotted: A Literary Atlas](https://www.amazon.co.uk/dp/1936976862/)
 - [Sapiens A Graphic History: Volume 3](https://www.amazon.co.uk/dp/191171726X)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
