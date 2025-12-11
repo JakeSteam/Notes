@@ -4,11 +4,12 @@
 
 I'm always very grateful for new books / book suggestions in any genre, fiction or non-fiction, used or new! Here’s [my currently owned books](https://www.goodreads.com/review/list/29398258-jake-lee?shelf=own) list, and [every book I've read](https://www.goodreads.com/review/list/29398258-jake-lee?ref=nav_mybooks&shelf=read), both lists can be searched.
 
-Books I'd especially like (they might be cheaper elsewhere):
+Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](https://www.abebooks.co.uk/)):
 
 #### Fiction
 
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
+- [Fallout 3 GOTY Game Guide](https://www.abebooks.co.uk/Fallout-Game-Year-Edition-Official-Guide/32351966355/bd)
 
 #### Non-fiction (lots are sold out, sorry! 😔)
 
