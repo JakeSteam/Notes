@@ -14,7 +14,6 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 #### Non-fiction (lots are sold out, sorry! 😔)
 
 - [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
-- [Open Circuits: The Inner Beauty of Electronic Components](https://www.amazon.co.uk/dp/1718502346/)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
 - [Plotted: A Literary Atlas](https://www.amazon.co.uk/dp/1936976862/)
 - [Sapiens A Graphic History: Volume 3](https://www.amazon.co.uk/dp/191171726X)
@@ -27,11 +26,9 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 ### Lego & similar
 
 - £50 - £100
-  - [LEGO NASA Apollo 11 Lunar Lander](https://www.lego.com/en-gb/product/nasa-apollo-11-lunar-lander-10266) _(Retired)_
   - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
 - £0 - £50
-  - [LEGO Happy Plants](https://www.lego.com/en-gb/product/happy-plants-10349)
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
   - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340) _(Retired)_
