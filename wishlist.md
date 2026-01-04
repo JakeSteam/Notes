@@ -24,7 +24,8 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 
 ### Lego & similar
-
+- £100+
+  - [NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
 - £50 - £100
   - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
