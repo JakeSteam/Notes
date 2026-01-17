@@ -47,6 +47,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 
 ### Home
 
+- [Fallout: New Vegas illustrated map](https://www.etsy.com/uk/listing/4382359834/illustrated-map-of-the-mojave-wasteland)
 - [Android Figurine](https://your.merch.google/android-figurine.html) (sold out, maybe [Glow in the Dark](https://your.merch.google/android-glow-in-the-dark-figurine.html) instead!)
 - [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
