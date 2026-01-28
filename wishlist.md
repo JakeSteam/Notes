@@ -27,6 +27,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
   - [NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
 - £50 - £100
   - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
+  - [LEGO Artemis SLS (Technic)](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
   - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
 - £0 - £50
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
