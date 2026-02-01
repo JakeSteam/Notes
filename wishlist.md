@@ -9,7 +9,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 #### Fiction
 
 - [Tintin (Paperback)](https://www.tintin.com/en/albums): In The Land of the Soviets, In The Congo, Land of Black Gold, Destination Moon, Explorers On The Moon, The Calculus Affair, The Red Sea Sharks, In Tibet, The Castafiore Emerald, Flight 714 To Sydney, And The Picaros, Alph-art.
-- [Fallout 3 GOTY Game Guide](https://www.abebooks.co.uk/Fallout-Game-Year-Edition-Official-Guide/32351966355/bd)
+- [Fallout 3 GOTY Game Guide](https://www.abebooks.co.uk/servlet/BookDetailsPL?bi=32215294101) (or [regular edition](https://www.amazon.co.uk/Fallout-Prima-Official-Game-Guides/dp/0761559965/))
 
 #### Non-fiction (lots are sold out, sorry! 😔)
 
