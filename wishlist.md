@@ -15,6 +15,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 
 - [City Of Darkness Revisited](https://www.amazon.co.uk/dp/1873200889)
 - [Megastructures / Starship Hulls](https://artofsoulburn.gumroad.com/)
+- [Practical Kotlin Deep Dive](https://www.amazon.com/dp/B0GGYWB5T5/) (might buy via work after UK release)
 - [Sapiens A Graphic History: Volume 3](https://www.amazon.co.uk/dp/191171726X)
 - [The Art of Doom](https://www.amazon.co.uk/dp/1616559349/)
 - [The Art of Borderlands 2](https://www.amazon.co.uk/dp/0744014379)
