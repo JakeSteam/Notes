@@ -29,3 +29,4 @@
 - Phone: [Samsung Galaxy S25](https://www.samsung.com/uk/smartphones/galaxy-s25/) w/ [Spigen Case](https://www.amazon.co.uk/dp/B0DJ9VF2M6)
 - Headphones: [Galaxy Buds3 Pro (White)](https://www.samsung.com/uk/audio-sound/galaxy-buds/galaxy-buds3-pro-white-sm-r630nzwaeua/)
 - eReader: [Kindle Paperwhite (v5)](https://www.amazon.co.uk/dp/B09TMF6742/) *([comparison article to v3](https://jakelee.co.uk/kindle-paperwhite-3-vs-paperwhite-5/))*
+- Tablet: [Lenovo Idea Tab](https://www.lenovo.com/gb/en/p/tablets/idea-tab-series/lenovo-idea-tab/zafr0384gb)
