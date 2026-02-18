@@ -25,7 +25,8 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 
 ### Lego & similar
 - £100+
-  - [NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
+  - [LEGO McLaren MCL39 F1](https://www.lego.com/en-gb/product/mclaren-mcl39-f1-car-42228)
+  - [LEGO NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
 - £50 - £100
   - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
   - [LEGO Artemis SLS (Technic)](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
