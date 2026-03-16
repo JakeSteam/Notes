@@ -1,4 +1,4 @@
 - [Book recommendations](/books.md)
 - [Owned LEGO](/lego.md)
-- [Owned Tech](/tech.md)
+- [Owned Tech](/uses.md)
 - [Wishlist](/wishlist.md)
