@@ -57,6 +57,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
 - [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) _(US only!)_
 - [Anbernic RG35XX Plus emulator (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
+- [IKEA Rechargeable Batteries](https://www.ikea.com/gb/en/p/ladda-rechargeable-battery-hr06-aa-1-2v-50504692/)
 
 ### Food & Drink
 
