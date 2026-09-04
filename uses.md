@@ -9,7 +9,7 @@
   - GPU: NVIDIA GeForce RTX 5060 (Laptop) 8GB
   - RAM: 32GB DDR5-5600MT/s
   - SSD: 1TB 2242 PCIe 4
-- Work Laptop: [2021 16" M1 MacBook Pro](https://www.apple.com/uk/macbook-pro-14-and-16/)
+- Work Laptop: [2024 14" M4 Max MacBook Pro](https://support.apple.com/en-gb/121553)
 - Monitors (3x):
   - [Lenovo 32" 4K Monitor](https://www.amazon.co.uk/dp/B0C8YVB3K8) & [Electriq 27" 1440p 95Hz Monitor (vertical)](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Dual Monitor Arm](https://www.amazon.co.uk/dp/B08LK6MRYB/))
   - [Electriq 27" 1440p 95Hz Monitor](https://www.amazon.co.uk/dp/B07TXHBWMK/) (on [HUANUO Single Monitor Arm](https://www.amazon.co.uk/dp/B07T4HQS2N/))
