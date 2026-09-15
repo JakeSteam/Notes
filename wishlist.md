@@ -29,7 +29,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
   - [LEGO NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
 - £50 - £100
   - [(6x) NASA Space Set Collection](https://decadastore.com/products/cada-nasa-space-set-c56041w-c56046w)
-  - [LEGO Artemis SLS (Technic)](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
+  - [LEGO Artemis SLS (Technic)](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-rocket-42221)
   - [LEGO Japanese Cherry Blossom Landscape](https://www.lego.com/en-gb/product/japanese-cherry-blossom-landscape-31218)
   - [LEGO Hokusai - The Great Wave](https://www.lego.com/en-gb/product/hokusai-the-great-wave-31208)
   - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
