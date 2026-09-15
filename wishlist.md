@@ -63,7 +63,6 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 ### Food & Drink
 
 - [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
-- Any Coffee Beans (whole, roasted)
 - Any Protein Bars
 - Any Bird Food e.g.:
   - [Suet Balls](https://www.amazon.co.uk/Suet-Shop-Standard-Energy-Protein/dp/B0CP65DCVZ/)
