@@ -23,6 +23,7 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 - [Typeset in the Future: Typography and Design in Science Fiction Movies](https://www.amazon.co.uk/dp/1419727141/)
 
 ### Lego & similar
+
 - £100+
   - [LEGO McLaren MCL39 F1](https://www.lego.com/en-gb/product/mclaren-mcl39-f1-car-42228)
   - [LEGO NASA Artemis SLS](https://www.lego.com/en-gb/product/nasa-artemis-space-launch-system-10341)
@@ -34,21 +35,20 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
   - [PUSU PUSU Bestsellers Bundle](https://shibuya-stationery.com/collections/fixed-bundles/products/pusu-pusu-bestsellers-bundle)
 - £0 - £50
   - [DK Mini Apollo launch pad](https://www.yourwobb.com/collections/aerospace-series/products/dk-7022-mini-apollo-launch-pad-and-rocket?variant=39916665274524)
-  - [LEGO Rocking Plants](https://www.lego.com/en-gb/product/rocking-plants-11506)
   - [LEGO Planet Earth and Moon in Orbit](https://www.lego.com/en-gb/product/planet-earth-and-moon-in-orbit-42179)
   - [LEGO Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340) _(Retired)_
 
-### Gift Cards (* = preferred!)
+### Gift Cards (\* = preferred!)
 
 - [Dunelm](https://www.dunelm.com/info/gift-cards)
 - [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
 - [IKEA](https://giftcard.ikea.co.uk/)
-- _**[LEGO](https://www.lego.com/en-gb/gift-cards/buy)**_*
+- _**[LEGO](https://www.lego.com/en-gb/gift-cards/buy)**_\*
 - [Next](https://www4.next.co.uk/gift-cards)
 - [Patch Plants](https://www.patchplants.com/gb/en/vouchers/patch-9/)
-- _**[Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)**_*
-- _**[Uniqlo](https://www.uniqlo.com/nl/en/special-feature/gift-card)**_*
-- _**[Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)**_*
+- _**[Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)**_\*
+- _**[Uniqlo](https://www.uniqlo.com/nl/en/special-feature/gift-card)**_\*
+- _**[Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)**_\*
 
 ### Home
 
