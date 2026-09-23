@@ -57,7 +57,10 @@ Books I'd especially like (they're probably cheaper elsewhere, e.g. [AbeBooks](h
 - [350ml Le Creuset Mug](https://www.amazon.co.uk/dp/B07M6FJ4DM/) (not Volcanic, Meringue, or Flint)
 - [London Underground Mug](https://www.ltmuseumshop.co.uk/homeware/category/mugs-cups/tube-lines-mug)
 - [Oasis Mini (Kinetic Sand Art)](https://grounded.so/products/oasis-mini) _(US only!)_
-- [Anbernic RG35XX Plus emulator (Grey, Transparent)](https://anbernic.com/products/rg35xx-plus?variant=44462924923137)
+
+### Tech
+- [Logitech MX Master 4 Mouse (Graphite Black)](https://www.amazon.co.uk/Logitech-Master-mouse-wireless-ergonomico-Graphite/dp/B0FHHSZ8WM)
+- [Anbernic RG406V (Black Transparent)](https://anbernic.com/products/rg-406v?variant=45589479260417)
 - [IKEA Rechargeable Batteries](https://www.ikea.com/gb/en/p/ladda-rechargeable-battery-hr06-aa-1-2v-50504692/)
 
 ### Food & Drink
